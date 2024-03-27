@@ -11,4 +11,4 @@ to run in your machine
 
 
 thanks 
-Author: Manytory ;)
+Author: Mandyytory ;)
